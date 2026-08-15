@@ -61,8 +61,6 @@ Facebook: https://www.facebook.com/profile.php?id=61592858924212
 
 Youtube: https://youtube.com/@SolanaCircuitOfficial
 
-
 Facebook: social@solanacircuit.com
 
-Youtube: @SolanaCircuitOfficial
 
