@@ -49,13 +49,18 @@ If any confusion / queries, you can always connect with us:
 https://solanacircuit/contact
 Gmail: solanacircuit@gmail.com
 
-WhatsApp: +917820980936
+WhatsApp: https://wa.me/917820980936
 
-Telegram: @solanacircuit
+Telegram: https://t.me/solanacircuit
 
-Discord:solanacircuit
+Discord: https://discord.gg/EEjEQZT2j
 
-Instagram:solanacircuit
+Instagram: https://instagram.com/solanacircuit
+
+Facebook: https://www.facebook.com/profile.php?id=61592858924212
+
+Youtube: https://youtube.com/@SolanaCircuitOfficial
+
 
 Facebook: social@solanacircuit.com
 
