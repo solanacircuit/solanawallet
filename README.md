@@ -47,6 +47,7 @@ RPC endpoint is very much required. Without this app will not work. You can get 
 If any confusion / queries, you can always connect with us: 
 
 https://solanacircuit/contact
+
 Gmail: solanacircuit@gmail.com
 
 WhatsApp: https://wa.me/917820980936
